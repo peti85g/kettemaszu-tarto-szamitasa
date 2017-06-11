@@ -1,0 +1,1 @@
+# kettemaszu-tarto-szamitasa
